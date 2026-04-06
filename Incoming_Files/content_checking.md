@@ -1,0 +1,1 @@
+Please research the latest trends in AI development and prepare a summary document.
